@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Blanquita9211 a Colombian psychologyst in the Human Resources world!
 - 👀 I’m interested in adding the most valuable talents to our team!
-- 🌱 I’m currently learning about this tech world.
+- 🌱 Always learning about this tech world.
 - 📫 How to reach me : blanca.puentes@accelone.com
